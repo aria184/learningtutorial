@@ -4,4 +4,4 @@ Sheng's 2024 tutorial for programming
 
 ## 2024-10-15
 
-I 
+I created my first dev log file!!!!!! I now have crippling depression...
